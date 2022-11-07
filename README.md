@@ -1,4 +1,4 @@
 # 88dldl.github.io
 
 
-#hello world
+ㅜㅜ테마적용안됨
